@@ -2,8 +2,7 @@ Hi, I’m @Promiseukadike
 I’m interested in software engineering!
 I’m currently learning! 
 I’m looking to collaborate! ..
-- 📫 How to reach me ... ( IG and X link on profile
-Pronouns: ... !!
+- 📫 How to reach me ... ( IG and X link on profile !!) 
 Fun fact: ... life comes at you fast! 
 
 <!---
